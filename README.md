@@ -1,4 +1,4 @@
-Responsive Web Design
+Jennifer Quinton's UX Portfolio
 
 ---
 
